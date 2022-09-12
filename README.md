@@ -1,9 +1,9 @@
-# BOTZ37
+# BOTZ-MD
 
-Youtube: RIMURUBOTZ
+Youtube: KenZ
 
-Instagram: RIMURUBOTZ
+Instagram: Kenzquerza
 
-Whatsapp: 082347260729
+Whatsapp: 089603861178
 
 Notes: Tap Star nya donk bang😅
